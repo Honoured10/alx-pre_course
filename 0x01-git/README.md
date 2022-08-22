@@ -1,1 +1,1 @@
-God is good
+Starting to code today, so cool
